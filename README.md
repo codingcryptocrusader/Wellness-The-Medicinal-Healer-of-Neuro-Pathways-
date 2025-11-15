@@ -1,1 +1,1 @@
-# Music-The-Medicinal-Healer-of-Neuro-Pathways-
+# Wellness-The-Medicinal-Healer-of-Neuro-Pathways-
